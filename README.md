@@ -1,2 +1,2 @@
-# Cuando-la-Ceniza-Tocó-la-Tierra
+# Cuando Cayó la ceniza
 Historia de una catástrofe.
